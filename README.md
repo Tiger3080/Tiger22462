@@ -7,7 +7,7 @@
 
 - 🌱 Studying : **Z-security course : Ethical Hacking , Website Hacking , Penetration Testing** 
 
-- 📫 Contact : **xutiger2001work@gmail.comm**  
+- 📫 Contact : **xutiger2001work@gmail.com**  
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
